@@ -1,2 +1,0 @@
-# branding
-logos n stuff
